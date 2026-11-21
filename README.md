@@ -1,4 +1,4 @@
-# Hey, I'm Apoorv! 👋
+# Hey, I'm Apoorva! 👋
 
 First things first, my username is inspired by Escanor, the Lion's Sin of Pride, for anyone wondering. Now that I think about it, I quite like Vegeta too. I believe we might have a pattern here. Anyways,
 
